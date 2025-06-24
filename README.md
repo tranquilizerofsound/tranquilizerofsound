@@ -4,9 +4,9 @@
 <p align="center"><b>insert name here</b><br>
   <sub>he / they • 18+</sub></p>
 <hr>
-<div align="center"><sub><ins>C+H always welcome!</ins></sub><br>
-<sub><ins>please whisper to int</ins> if you're not on my friendlist or ill probably miss ur messages....</sub><br>
-<sub>feel free to just randomly talk to me idk if i dont respond im AFK or missed your msg lol</sub><br>
-<sub>it's okay to take some inspo from my skins but <ins>please dont copy!</ins></sub><br>
-<sub>i'm almost always on <ins>offline mode</ins> bc i feel awkward but you're still free to talk to me if i am</sub><br>
+<div align="center"><sub><ins>C+H always welcome!</ins></sub><br><br>
+<sub><ins>please whisper to int</ins> if you're not on my friendlist or ill probably miss ur messages....</sub><br><br>
+<sub>feel free to just randomly talk to me idk if i dont respond im AFK or missed your msg lol</sub><br><br>
+<sub>it's okay to take some inspo from my skins but <ins>please dont copy!</ins></sub><br><br>
+<sub>i'm almost always on <ins>offline mode</ins> bc i feel awkward but you're still free to talk to me if i am</sub><br><br>
 <br><sub>ok thats all idk why i made this</sub><br></div>
