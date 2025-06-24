@@ -1,9 +1,11 @@
 <div align="center"><img src="https://i.postimg.cc/c4VBqp2H/ART-BY-tofu-eggs-2.png" width="400"></div>
-<p align="center"><sub>credit: <a href="https://x.com/tofu_eggs/status/1935662470087274619/">@tofu_eggs</a></sub></p>
-<p align="center">nameless - he / they - 18+</p>
+<p align="center"><sub><code>credit: <a href="https://x.com/tofu_eggs/status/1935662470087274619/">@tofu_eggs</a></code></sub></p>
+<p align="center"><b>nameless</b><br>
+  <sub>he / they - 18+</sub></p>
 
-<div><ins>C+H always welcome!</ins>
-<br><ins>please whisper to int</ins> if you're not on my friendlist or ill probably miss ur messages....<br>
-feel free to just randomly talk to me idk if i dont respond im AFK or missed your msg lol<br>
-it's okay to take some inspo from my skins but <ins>please dont copy!</ins><br>
-i'm almost always on <ins>offline mode</ins> bc i feel awkward but you're still free to talk to me if i am</div>
+<ul>
+<li><ins>C+H always welcome!</ins></li>
+<li><ins>please whisper to int</ins> if you're not on my friendlist or ill probably miss ur messages....</li>
+<li>feel free to just randomly talk to me idk if i dont respond im AFK or missed your msg lol</li>
+<li>it's okay to take some inspo from my skins but <ins>please dont copy!</ins></li>
+<li>i'm almost always on <ins>offline mode</ins> bc i feel awkward but you're still free to talk to me if i am</li></ul>
