@@ -4,7 +4,7 @@
   <sub><code>art credit: <a href="https://x.com/tofu_eggs/status/1935662470087274619/">@tofu_eggs</a></code></sub></p>
 <div align="center"><img src="https://i.postimg.cc/c4VBqp2H/ART-BY-tofu-eggs-2.png" width="400"></div>
 <p align="center"><b>insert name here</b><br>
-  <sub>he / they • 19</sub></p>
+  <sub>he / it ; 19</sub></p>
 <hr>
 <div align="center">
   <sub><ins>C+H always welcome!</ins></sub><br><br>
