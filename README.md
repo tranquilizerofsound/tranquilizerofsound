@@ -1,8 +1,8 @@
 
 <p align="center">
    <img src="https://komarev.com/ghpvc/?username=tranquilizerofsound&color=8990b4&style=plastic&label=YOU+ARE+VISITOR+NUMBER&abbreviated=true"><br>
-  <sub><code>art credit: <a href="https://x.com/tofu_eggs/status/1935662470087274619/">@tofu_eggs</a></code></sub></p>
-<div align="center"><img src="https://i.postimg.cc/c4VBqp2H/ART-BY-tofu-eggs-2.png" width="400"></div>
+  <!--<sub><code>art credit: <a href="https://x.com/tofu_eggs/status/1935662470087274619/">@tofu_eggs</a></code></sub>--></p>
+<!--<div align="center"><img src="https://i.postimg.cc/c4VBqp2H/ART-BY-tofu-eggs-2.png" width="400"></div>-->
 <p align="center"><b>insert name here</b><br>
   <sub>he / it ; 19</sub></p>
 <hr>
